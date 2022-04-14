@@ -1,4 +1,4 @@
-### Hi there 👋
+I’m a Frontend Developer and UI Designer. I work in this field for 2 years. Before that, I worked in the marketing field, which helps me to improve my creative skills by combining effective marketing techniques with the way I design and develop websites. I work hard and focus on providing great customer service and quality work. If you have a business idea and looking for a good Design!! Just ping me.
 
 <!--
 **abfkh/abfkh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
